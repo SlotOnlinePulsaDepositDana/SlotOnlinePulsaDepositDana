@@ -1,6 +1,6 @@
 # Daftar Agen Slot Online Pulsa Deposit Dana dan OVO 5000 | Situs Judi Slot Online OVO | Slot Pulsa Deposit Dana Tanpa Potongan Terpercaya
 
-<a href="http://yukcuan88.net/"></a>
+<a href="http://yukcuan88.com/"></a>
 
 [![](https://iforum-sg.c.hihonor.com/my/my_data/images/10000/2022/7/1/08cefce8-3682-47b1-bd68-7afae034dd07.png?imageId=316933)](http://yukcuan88.net/)
 
